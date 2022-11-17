@@ -1,2 +1,2 @@
 # grafica
-grafica muy grafica
+Yo creo que me merezco un 10
